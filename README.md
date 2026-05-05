@@ -37,3 +37,5 @@
 36 : Cyborg 009: The Cyborg Soldier
 37 : Darwin Jihen
 38 : Tokyo Ghoul √A
+
+I LOVE YOU AYA 
